@@ -1,1 +1,30 @@
-
+# 2022年8月14日信息
+# 主题：真葡萄树
+# 经文：约翰福音：15章1-17
+# 讲员：赵牧师
+<audio controls src="./真葡萄树.mp3"></audio>
+![image](https://user-images.githubusercontent.com/91267933/184521835-3fc8d32a-ae37-47eb-a430-0009b3cf24dd.png)
+![image](https://user-images.githubusercontent.com/91267933/184521841-d9d42886-3236-483b-ac61-f3a7feddb383.png)
+![image](https://user-images.githubusercontent.com/91267933/184521844-24da8ac3-6e0e-4030-92c0-918837c00f88.png)
+![image](https://user-images.githubusercontent.com/91267933/184521849-3b4a36bc-3207-4a68-a51f-30922dd37388.png)
+![image](https://user-images.githubusercontent.com/91267933/184521858-aad90cb1-8275-4296-985b-ac23040367f9.png)
+![image](https://user-images.githubusercontent.com/91267933/184521863-55742ef7-3edf-4d83-9d0e-70ba4730e201.png)
+![image](https://user-images.githubusercontent.com/91267933/184521867-9a162a97-b79f-4c62-9bb7-ed62bd01b745.png)
+![image](https://user-images.githubusercontent.com/91267933/184521872-655e6a98-7165-488a-9f55-c99c83bc0d76.png)
+![image](https://user-images.githubusercontent.com/91267933/184521880-333af6e9-c851-49d1-b697-ae9c1aad421e.png)
+![image](https://user-images.githubusercontent.com/91267933/184521892-e37922e0-fb3f-4878-a0cb-7474ef687aa1.png)
+![image](https://user-images.githubusercontent.com/91267933/184521898-5dde6d6c-f0e6-4cdb-9712-2a404be613d1.png)
+![image](https://user-images.githubusercontent.com/91267933/184521904-d5530969-0317-464d-91ef-39d09a969854.png)
+![image](https://user-images.githubusercontent.com/91267933/184521910-ce3304a2-fc01-4218-984b-f4651816c043.png)
+![image](https://user-images.githubusercontent.com/91267933/184521914-2a9a233c-402c-4b88-8733-cbd190555e1e.png)
+![image](https://user-images.githubusercontent.com/91267933/184521917-530d2e08-43d2-4769-ad02-ba4d5b9967fd.png)
+![image](https://user-images.githubusercontent.com/91267933/184521922-bcba3e3e-e798-4e6a-9158-97e67ed02072.png)
+![image](https://user-images.githubusercontent.com/91267933/184521927-0c1763d3-74a6-4807-bee4-0efd656ae6a7.png)
+![image](https://user-images.githubusercontent.com/91267933/184521930-414d826d-a267-43c3-9162-f3b1cc763240.png)
+![image](https://user-images.githubusercontent.com/91267933/184521932-05f014ea-24cd-4d40-bc07-fe390b4a60dd.png)
+![image](https://user-images.githubusercontent.com/91267933/184521935-f9a72ff0-93ee-42aa-b508-25cbe21f98c4.png)
+![image](https://user-images.githubusercontent.com/91267933/184521936-bec93c33-b553-46d2-a9a1-cfe918b89e6b.png)
+![image](https://user-images.githubusercontent.com/91267933/184521946-bfb71fe1-9f4e-451b-b76d-c7eab5ba0bbe.png)
+![image](https://user-images.githubusercontent.com/91267933/184521947-857e6355-00a0-4a1d-ab34-db0a10434e37.png)
+![image](https://user-images.githubusercontent.com/91267933/184521948-7b83843a-b46b-4a95-a264-12bfbbe783bf.png)
+![image](https://user-images.githubusercontent.com/91267933/184521959-e54c837c-4d2d-4c70-b750-1a3ed88e711e.png)
